@@ -1,0 +1,1 @@
+# My distro wallpaper collection
